@@ -6,5 +6,5 @@
 
 - 💞️ I’m looking to collaborate on any project where i can learn more about hacking 
 
-- 📫 How to reach me - ManavSharmahp808@gmail.com
+- 
 
